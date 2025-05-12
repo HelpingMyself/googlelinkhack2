@@ -33,3 +33,8 @@
 #### v Regular Tab v
 
 [Google](https://www.google.com)
+[Mangapark](mangapark.net)
+[Now/Roblox](https://now.gg/apps/a/19900/b.html)
+[X](x.com)
+[Xnx](xnxx.com)
+[CroxyProxy](croxyproxy.com)
