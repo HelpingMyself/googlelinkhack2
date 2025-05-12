@@ -38,7 +38,7 @@
 
 [Now/Roblox](https://now.gg/apps/a/19900/b.html)
 
-[X](x.com)
+[X](twitter.com)
 
 [Xnx](xnxx.com)
 
